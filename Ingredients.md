@@ -1,0 +1,16 @@
+The ingredients required are:
+Rice          -  250 gm or 1/4 kg,                                                                                                        
+Tamarind      -  20 gm,                                                                                                                       
+Chana dal     -  2 tbsp,                                                                                                                      
+Urad dal      -  1 tbsp,                                                                                                                      
+Mustard Seeds -  1 tbsp,                                                                                                                      
+Groundnuts    -  1/2 teacup (or as per liking),                                                                                               
+Turmeric      -  1 tsp,                                                                                                                       
+Cashew Nuts   -  20 pieces (or as per liking),                                                                                                
+Curry leaves  -  few,                                                                                                                         
+Salt          -  as per liking,                                                                                                               
+Sugar         -  1/2 tsp,
+Oil  ,                                                                                                                                        
+Red chilli    -  4,                                                                                                                           
+Green chilli  -  2,                                                                                                                           
+
